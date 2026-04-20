@@ -10,7 +10,7 @@ Imran Wahid (76771)
 
 Uzair Rehman (68005)
 
-Shoaib Azam
+Shoaib Azam (62869)
 
 ## Course Information
 
